@@ -1,2 +1,2 @@
 ## The Division 2 Weekly Vendor Reset
-Readme
+https://rubenalamina.mx/the-division-weekly-vendor-reset/
